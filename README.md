@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @Gavin2567
+- 👀 I’m interested in . making businesses..
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ..icrise on my business.
+- 📫 How to reach me contact me on my what's up number+256789218042
+- or imail.ibraabdul2017@gmail.com...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+
+<!---
+Gavin2567/Gavin2567 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
